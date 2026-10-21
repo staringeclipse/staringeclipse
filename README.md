@@ -1,8 +1,8 @@
 
 **<p align="center"> " I just accept what's infront of me bruh. " </p>**
 <img align="left" width="465" height="327" alt="image" src="https://github.com/user-attachments/assets/97c8f448-ecb0-46ce-83c9-777beb1ad668" />
-<p align="right"> ෆ art by nemull on pinterest/tiktok </p>
-<p align="right"> ꒰ tax duo - me and reine forever !!! ꒱
+<p align="left"> ෆ art by nemull on pinterest/tiktok </p>
+<p align="left"> ꒰ tax duo me and reine forever !!! ꒱
 
 
 <p align="right"> ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔ </p>
