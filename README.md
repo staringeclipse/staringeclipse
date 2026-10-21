@@ -7,7 +7,7 @@
 
 
 <p align="right"> ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔ </p>
- <p align="right"> ⋆‧°𓏲ּ𝄢 12-14, aegoromantic queer techum trans guy (he/error).</p>
+ <p align="right"> ⋆‧°𓏲ּ𝄢 12-14, aegoromantic queer techum trans guy (they/them.</p>
 <p align="right"> mostly w2i as i have pt on in background when not with friends, c+h freely unless i'm with friends. </p>
 
 <p align="right"> ikabod kee softsharing yumeshipper ❤︎ </p>
